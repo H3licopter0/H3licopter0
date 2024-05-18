@@ -9,7 +9,5 @@ Sou H3licópter0, não quero dizer meu nome verdadeiro, ent meh
 -Gosto de jogos, principalmente Undertale e Deltarune🍡
 -Ainda sou um estudante
 -Meh 👽
-
-
 ![](https://tenor.com/pt-BR/view/sonicrewrite-sonic-sonicexe-silly-spin-gif-14848045650383963889
 )
