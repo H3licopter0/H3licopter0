@@ -1,16 +1,15 @@
-### Hi there 👋
+### Olá á todos os seres  🎈
 
-<!--
-**H3licopter0/H3licopter0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Sou H3licópter0, não quero dizer meu nome verdadeiro, ent meh
 
-Here are some ideas to get you started:
+-Só estou fazendo isso por conta das plataformas obrigatórias do ensino PEI
+-Não tenho tempo para nada 
+-Gosto de desenhar
+-Não gosto do ensino PEI
+-Gosto de jogos, principalmente Undertale e Deltarune🍡
+-Ainda sou um estudante
+-Meh 👽
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+![](https://tenor.com/pt-BR/view/sonicrewrite-sonic-sonicexe-silly-spin-gif-14848045650383963889
+)
