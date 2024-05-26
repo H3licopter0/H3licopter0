@@ -2,12 +2,10 @@
 
 Sou H3licópter0, não quero dizer meu nome verdadeiro, ent meh
 
--Só estou fazendo isso por conta das plataformas obrigatórias do ensino PEI
--Não tenho tempo para nada 
+-Só estou fazendo isso por conta das plataformas do ensino PEI
+-Eu estudo 
 -Gosto de desenhar
--Não gosto do ensino PEI
--Gosto de jogos, principalmente Undertale e Deltarune🍡
+-Gosto de jogos
 -Ainda sou um estudante
--Meh 👽
 ![](https://tenor.com/pt-BR/view/sonicrewrite-sonic-sonicexe-silly-spin-gif-14848045650383963889
 )
