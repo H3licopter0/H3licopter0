@@ -1,6 +1,6 @@
 ### Olá á todos os seres  🎈
 
-Sou H3licópter0, não quero dizer meu nome verdadeiro, ent meh
+Sou H3licópter0, não quero dizer meu nome verdadeiro, por motivos de privacidade
 
 -Só estou fazendo isso por conta das plataformas do ensino PEI
 -Eu estudo 
