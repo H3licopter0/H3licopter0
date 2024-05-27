@@ -7,5 +7,4 @@ Sou H3licópter0, não quero dizer meu nome verdadeiro, por motivos de privacida
 -Gosto de desenhar
 -Gosto de jogos
 -Ainda sou um estudante
-![](https://tenor.com/pt-BR/view/sonicrewrite-sonic-sonicexe-silly-spin-gif-14848045650383963889
-)
+![](https://tenor.com/pt-BR/view/sonicrewrite-sonic-sonicexe-silly-spin-gif-14848045650383963889)
